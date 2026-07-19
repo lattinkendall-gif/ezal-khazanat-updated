@@ -1,1 +1,0 @@
-# ezal-khazanat-updated
